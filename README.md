@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Promine, contening the maner, place, and time, of the maist Illuster King James the sext his fir
+
 1. The Epistill.
 
 #####Body#####
